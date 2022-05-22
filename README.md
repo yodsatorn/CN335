@@ -20,6 +20,8 @@
 ![submarine](https://user-images.githubusercontent.com/60430405/162024201-bb7b62f6-885f-4796-9bb8-51525a432ab5.jpg)
 **ฉากใต้ท้องทะเล**
 ![scene](https://user-images.githubusercontent.com/60430405/162024263-5dd306df-a6fc-4db9-9eb4-92b7400b7be7.jpg)
+**รวม Luca เข้ากับฉากใต้ท้องทะเล**
+![Screenshot 2022-05-22 144833](https://user-images.githubusercontent.com/60430405/169684915-dd037a45-91ca-46ca-b87d-dbc8b02cc5ce.jpg)
 
 ---------
 
